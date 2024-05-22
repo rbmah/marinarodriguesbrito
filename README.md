@@ -10,7 +10,5 @@ meu nome é Marina Rodrigues
 
 00001085206610SP@al.educacao.sp.gov.br
 
-marina rodrigues
-
 ![](https://media1.tenor.com/m/UtpTAF6G1eIAAAAC/lou-dsacy-lou-dsaadhak.gif)
 
